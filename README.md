@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iamwasp
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning brain fuck
+- 💞️ I’m looking to collaborate on wedding
+- 📫 How to reach me ? @thisiswasp
